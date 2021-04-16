@@ -1,1 +1,1 @@
-# MyRecipes
+Momo is a type of steamed dumpling with some form of filling. Momo has become a traditional delicacy in Nepal, Tibet, as well as among Nepalese and Tibetan communities in Bhutan, as well as people of Ladakh, Northeast India and Darjeeling regions of India. I chose Momos because they seem to be a very interesting Indian street food. The stuffing inside is made from many vegetables which makes it really healthy. Dipping it in the chutney just makes it even more delicious.
